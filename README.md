@@ -1,4 +1,4 @@
-# Hi, my name is Elisa Barbieti
+# Hi, my name is Elisa Barbieri
 
 ## polo
 
